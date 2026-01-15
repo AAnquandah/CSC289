@@ -1,7 +1,7 @@
 # Hi, I'm Augustine 👋
 
  # About Me
-Born and raised in Ghana. I am married to by beautiful wife.
+Born and raised in Ghana. I am married to my beautiful wife.
 
 Anything documentary you got me. I love to play soccer and I  do a little bit of cooking on my free time
 # Currently Learning
